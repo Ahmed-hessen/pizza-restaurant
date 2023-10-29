@@ -42,12 +42,23 @@ Welcome to the Pizza Joy Express, where ordering your favorite pizzas is a delig
 10. **Priority Anytime:**
     - Suddenly feel your order deserves a red carpet? No worries! Mark it as "priority" even after you've set it free into the pizza world.
 
-## Get Ready to Indulge! 🎉
 
-Thank you for choosing Pizza Joy Express! Get ready to embark on a joyous journey filled with laughter, flavors, and the occasional pizza victory dance. Let the pizza joy flow! 🕺🍕
-9. **Priority Anytime:**
-   - Suddenly feel your order deserves a red carpet? No worries! Mark it as "priority" even after you've set it free into the pizza world.
 
-## Get Ready to Indulge! 🎉
+![Screenshot (32)](https://github.com/Ahmed-hessen/pizza-restaurant/assets/128532764/fee75b47-cd73-49e6-a5d5-6344bc28526f)
 
-Thank you for choosing Pizza Joy Express! Get ready to embark on a joyous journey filled with laughter, flavors, and the occasional pizza victory dance. Let the pizza joy flow! 🕺🍕
+
+
+
+![Screenshot (33)](https://github.com/Ahmed-hessen/pizza-restaurant/assets/128532764/4abda1e8-c881-483b-a496-eb96e4369070)
+
+
+
+
+![Screenshot (34)](https://github.com/Ahmed-hessen/pizza-restaurant/assets/128532764/ef59dcb4-c409-49c7-a204-b04a8b83f2b1)
+
+
+
+![Screenshot (35)](https://github.com/Ahmed-hessen/pizza-restaurant/assets/128532764/408b3a01-bbf9-4487-9fa8-eb31612ffd21)
+
+
+
